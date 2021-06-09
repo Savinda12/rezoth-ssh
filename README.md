@@ -55,4 +55,4 @@ UserAdd කරද්දි strong password එකක් use කරන්න
 ```
 ☆ https://t.me/rezoth_tm ☆
 ```
-@sirimath20 
+@savinda12
